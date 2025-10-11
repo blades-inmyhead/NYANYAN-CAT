@@ -1,2 +1,2 @@
-꒰![](https://komarev.com/ghpvc/?username=NYANYAN-CAT&color=green)꒱
+꒰![](https://komarev.com/ghpvc/?username=NYANYAN-CAT&color=lightgrey)꒱
 
