@@ -1,4 +1,4 @@
-꒰![](https://komarev.com/ghpvc/?username=NYANYAN-CAT&abbreviated=true&label=wake+up+dude+its+9pm+!!&color=lightgrey&style=plastic)꒱
+꒰![](https://komarev.com/ghpvc/?username=NYANYAN-CAT&abbreviated=true&label=⊹&color=lightgrey&style=plastic)꒱
 
 
 
