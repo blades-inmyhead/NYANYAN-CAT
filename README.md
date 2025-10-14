@@ -1,4 +1,4 @@
-꒰![](https://komarev.com/ghpvc/?username=NYANYAN-CAT&abbreviated=true&label=⊹&color=lightgrey&style=plastic)꒱
+꒰![](https://komarev.com/ghpvc/?username=blades-inmyhead&abbreviated=true&label=⊹&color=lightgrey&style=plastic)꒱
 
 
 
@@ -11,8 +11,4 @@
 
 
 ---
-
-this guys a copier btw LOL , V
-
-<img width="369" height="119" alt="copier" src="https://github.com/user-attachments/assets/a69d0ea6-1260-4e22-b749-31253fcf3517" />
 
